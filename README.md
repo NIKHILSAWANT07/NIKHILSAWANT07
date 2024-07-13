@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **nikhilsawant2864@gmail.com**
 
-- 📄 Know about my experiences [resume...](soon...)
+- 📄 Know about my experiences [resume...](https://drive.google.com/file/d/1jUjy5liBfiG1s9lS39ilidb50qmQpr26/view?usp=drivesdk)
 <br></br>
 <br></br>
 <h3 align="left">Connect with me:</h3>
